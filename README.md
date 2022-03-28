@@ -2,5 +2,4 @@
 - 😁 I’m currently focusing on Tech Recruiter
 - 🌱 I’m currently learning in tech things also the people 
 - 👯 I’m looking to collaborate with tech fellows who are open for opportunity
-- 📫 How to reach me: linkedin @dinartanaya
---->
+- 📫 How to reach me: linkedin @dinartanaya ---> (https://www.linkedin.com/in/dinar-tanaya-218345154/)
